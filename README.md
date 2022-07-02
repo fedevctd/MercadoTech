@@ -4,4 +4,4 @@ MercadoTech prueba de Intro
 1- Federico Villarruel :partying_face:
 2- Ramiro Preuss
 3- Maribel Zamora
-4- Jorge Rodriguez
+4- Jorge Rodriguez :japanese_goblin:
